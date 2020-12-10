@@ -1,1 +1,0 @@
-# WebfejlesztesBeadando2020 🚀
